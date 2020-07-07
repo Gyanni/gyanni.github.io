@@ -1,1 +1,1 @@
-# Gyaani.github.io
+# Gyanni.github.io
